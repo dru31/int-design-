@@ -1,1 +1,1 @@
-hbkbk 
+I designed a gym with an industrial theme complemented by sleek, modern accents, particularly emphasized through the lighting design. The total floor area spans approximately 8,000 square feet. The layout seamlessly integrates the functional requirements of a gym, including spaces for cult fitness classes, without compromising on the aesthetic appeal.
